@@ -1,1 +1,1 @@
-Video Link [https://vimeo.com/1022149680?]
+Video Link https://vimeo.com/1022149680
